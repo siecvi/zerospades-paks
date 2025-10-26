@@ -1,0 +1,2 @@
+Most of these mods aren't made by me, they were just modified/adapted to work on zerospades (plus some fixes while i was at it)
+If you can't find your favorite mod here or you're having trouble installing, just contact me on my discord: ZeroG#2020
